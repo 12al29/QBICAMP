@@ -1,9 +1,9 @@
-*Student Clubs*
-**QU**
+**Student Clubs**
+*QU*
 
-**SLC** 
+*SLC*
 
-*Industry*
+**Industry**
 
 **Panel Event**
 
